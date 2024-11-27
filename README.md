@@ -1,8 +1,5 @@
 - 👋 Hi, I’m Gabrielle Patrick Junior
-- These are my works!
-👋 Hi, I’m Gabrielle Patrick Junior
-
-These are my work portfolio!
+- These are my work portfolio!
 
 - AEON Indonesia: https://sites.google.com/view/aeonleafyvegetables/home
 - CASA Indonesia
